@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Knumi or you can just call me Kill
+- 👀 I’m interested in Cyber security, software engineering and programming 
+- 🌱 I’m currently learning Programming and Software engineering 
+- My discord is Kill___
+- 😄 Pronouns: He/him 
+- ⚡ Fun fact: ...
